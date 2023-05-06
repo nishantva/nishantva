@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @nishantvaishla
+- 👋 Hi, I’m @nishant
 - 👀 I’m interested in coding
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... nishantvaishlanitj2k19@gmail.com
